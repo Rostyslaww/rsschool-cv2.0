@@ -1,1 +1,1 @@
-https://Rostyslaww.github.io/rsschool-cv2.0/c
+https://Rostyslaww.github.io/rsschool-cv2.0/cv
